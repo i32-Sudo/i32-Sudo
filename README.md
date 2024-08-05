@@ -1,5 +1,5 @@
 # About
-Allo! My name is Тагир （or Ezekiel) I was born in Crimea and now live in Canada, I study Reverse Engineering & Software Based Cybersecurity (Exploitation and Vulnerability Analysis) and study everything from Ring 3 Software Security & Exploitation to Ring 0 Kernel Level OS Exploitation (Such as the Windows Kernel Frame & Security), I am always up for contracted and hired work as I have been studying all of this for 5- Years now.
+Allo! My name is Тагир （or Ezekiel) I was born in Crimea and now live in Canada, I study Reverse Engineering & Software Based Cybersecurity (Exploitation and Vulnerability Analysis) and study everything from Ring 3 Software Security & Exploitation to Ring 0 Kernel Level OS Exploitation (Such as the Windows Kernel Frame & Security), I am always up for contracted and hired work as I have been studying all of this for 4- Years now.
 # What I am studying (right now)
 - AntiCheat Based Security & Exploitation
 - Windows Security Exploitation
