@@ -24,9 +24,9 @@ Allo! My name is Тагир （or Ezekiel) I was born in Crimea and now live in 
 ### Untrusted Scammers ⚠️
 UnTrusted Scammers that do Cheat & Exploit Development that I have dealt with.
 ```
-- Kazuto(Kazuto911) Scammer asked for more money then we settled on and then selling pasted code I found in less then 5 minutes on github.
-- ИЦҜΞD ЯЦSΓ　　　 🗕 🗗 🗙(nukedrust) Exit Scamming with his "UD" Rust Internal
-- viviandeveloper(Atlas) VivianWare Admin, Skid & Time Waster will ghost & never pay
+- ⛔ Kazuto(Kazuto911) Scammer asked for more money then we settled on and then selling pasted code I found in less then 5 minutes on github.
+- ⛔ ИЦҜΞD ЯЦSΓ　　　 🗕 🗗 🗙(nukedrust) Exit Scamming with his "UD" Rust Internal
+- ⛔ viviandeveloper(Atlas) VivianWare Admin, Skid & Time Waster will ghost & never pay
 
 - Dev(exploitwizard) Full Time Waster, Will ghost & never pay
 - DEVIL_KRISHNA(devil_krishna) Full Time Waster, Will ghost & never pay
