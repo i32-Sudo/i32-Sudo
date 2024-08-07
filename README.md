@@ -34,4 +34,5 @@ UnTrusted Scammers that do Cheat & Exploit Development that I have dealt with.
 - icrankyy(icrankyy) Full Time Waster, Will ghost & never pay
 - dawg(nerate.) Full Time Waster, Will ghost & never pay
 - Ясно Понятно(opasniyvozrast) Full Time Waster, Will ghost & never pay
+- 𝐃𝐀𝐑𝐄(darefps) Owner of greasygoods.sell.app (Greasy Solutions). Full Time Waster, Will ghost & never pay
 ```
