@@ -33,4 +33,5 @@ UnTrusted Scammers that do Cheat & Exploit Development that I have dealt with.
 - 4k(4kenna) Full Time Waster, Will ghost & never pay
 - icrankyy(icrankyy) Full Time Waster, Will ghost & never pay
 - dawg(nerate.) Full Time Waster, Will ghost & never pay
+- Ясно Понятно(opasniyvozrast) Full Time Waster, Will ghost & never pay
 ```
