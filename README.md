@@ -27,6 +27,7 @@ UnTrusted Scammers that do Cheat & Exploit Development that I have dealt with.
 - ⛔ Kazuto(Kazuto911) Scammer asked for more money then we settled on and then selling pasted code I found in less then 5 minutes on github.
 - ⛔ ИЦҜΞD ЯЦSΓ　　　 🗕 🗗 🗙(nukedrust) Exit Scamming with his "UD" Rust Internal
 - ⛔ viviandeveloper(Atlas) VivianWare Admin, Skid & Time Waster will ghost & never pay
+- ⛔ unlockcheat.com(unlockcod) Scammer & Time Waster, As a cheat reseller & owner (NOT A DEVELOPER) You should hold responsibility and not try to Scam & Manipulate your developers.
 
 - Dev(exploitwizard) Full Time Waster, Will ghost & never pay
 - DEVIL_KRISHNA(devil_krishna) Full Time Waster, Will ghost & never pay
