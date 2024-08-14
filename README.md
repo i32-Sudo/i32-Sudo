@@ -24,17 +24,16 @@ Allo! My name is Тагир （or Ezekiel) I was born in Crimea and now live in 
 ### Untrusted Scammers ⚠️
 UnTrusted Scammers that I have dealt and worked with.
 ```
-- ⛔ Kazuto(Kazuto911) Scammer asked for more money then we settled on and then selling pasted code I found in less then 5 minutes on github.
-- ⛔ ИЦҜΞD ЯЦSΓ　　　 🗕 🗗 🗙(nukedrust) Exit Scamming with his "UD" Rust Internal
-- ⛔ viviandeveloper(Atlas) VivianWare Admin, Skid & Time Waster will ghost & never pay
-- ⛔ unlockcheat.com(unlockcod) Scammer & Time Waster, As a cheat reseller & owner (NOT A DEVELOPER) You should hold responsibility and not try to Scam & Manipulate your developers. Extremely unprofessional and not worth the time to get scammed and played.
-- ⛔ whatman(writedata) Owner/Developer of Solaris Roblox Executor that was Malware & an Exposed Rat, Tried to lie and gaslight me into working with them fucking up their words and when I asked them about their malware and drama issues they started saying contridicting stuff. Later going on to say they will "Speak to their Lawyers" that is probably just a friend because they did not do our NDA Properly and failed to take base percautions in our NDA (Age & Contact Information) Along with SSI just saying "I had to sign a contract" when its an NDA we were doing, When they said they got it figured out and said we could do an NDA I asked how to Sign it and what to do they ghosted and never responded. More Controversy to the shitty Solaris Developers.
+- ⛔ Kazuto - Scammer asked for more money then we settled on and then selling pasted code I found in less then 5 minutes on github.
+- ⛔ ИЦҜΞD ЯЦSΓ　　　 🗕 🗗 🗙 - Exit Scamming with his "UD" Rust Internal
+- ⛔ viviandeveloper(owner) -  VivianWare Admin, Skid & Time Waster will ghost & never pay
+- ⛔ unlockcheat.com(owner) - Scammer & Time Waster, As a cheat reseller & owner (NOT A DEVELOPER) You should hold responsibility and not try to Scam & Manipulate your developers. Extremely unprofessional and not worth the time to get scammed and played.
+- ⛔ whatman - Owner/Developer of Solaris Roblox Executor that was Malware & an Exposed Rat, Tried to lie and gaslight me into working with them fucking up their words and when I asked them about their malware and drama issues they started saying contridicting stuff. Later going on to say they will "Speak to their Lawyers" that is probably just a friend because they did not do our NDA Properly and failed to take base percautions in our NDA (Age & Contact Information) Along with SSI just saying "I had to sign a contract" when its an NDA we were doing, When they said they got it figured out and said we could do an NDA I asked how to Sign it and what to do they ghosted and never responded. More Controversy to the shitty Solaris Developers.
 
-- Dev(exploitwizard) Full Time Waster, Will ghost & never pay
-- DEVIL_KRISHNA(devil_krishna) Full Time Waster, Will ghost & never pay
-- 4k(4kenna) Full Time Waster, Will ghost & never pay
-- icrankyy(icrankyy) Full Time Waster, Will ghost & never pay
-- dawg(nerate.) Full Time Waster, Will ghost & never pay
-- Ясно Понятно(opasniyvozrast) Full Time Waster, Will ghost & never pay
+- Exploit Wizard - Full Time Waster, Will ghost & never pay
+- DEVIL_KRISHNA - Full Time Waster, Will ghost & never pay
+- 4kenna - Full Time Waster, Will ghost & never pay
+- icrankyy - Full Time Waster, Will ghost & never pay
+- dawg(nerate) Full Time Waster, Will ghost & never pay
 - 𝐃𝐀𝐑𝐄(darefps) Owner of greasygoods.sell.app (Greasy Solutions). Full Time Waster, Will ghost & never pay
 ```
