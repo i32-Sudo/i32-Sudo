@@ -28,6 +28,7 @@ UnTrusted Scammers that I have dealt and worked with.
 - ⛔ ИЦҜΞD ЯЦSΓ　　　 🗕 🗗 🗙(nukedrust) Exit Scamming with his "UD" Rust Internal
 - ⛔ viviandeveloper(Atlas) VivianWare Admin, Skid & Time Waster will ghost & never pay
 - ⛔ unlockcheat.com(unlockcod) Scammer & Time Waster, As a cheat reseller & owner (NOT A DEVELOPER) You should hold responsibility and not try to Scam & Manipulate your developers. Extremely unprofessional and not worth the time to get scammed and played.
+- ⛔ whatman(writedata) Owner/Developer of Solaris Roblox Executor that was Malware & an Exposed Rat, Tried to lie and gaslight me into working with them fucking up their words and when I asked them about their malware and drama issues they started saying contridicting stuff. Later going on to say they will "Speak to their Lawyers" that is probably just a friend because they did not do our NDA Properly and failed to take base percautions in our NDA (Age & Contact Information) Along with SSI just saying "I had to sign a contract" when its an NDA we were doing, When they said they got it figured out and said we could do an NDA I asked how to Sign it and what to do they ghosted and never responded. More Controversy to the shitty Solaris Developers.
 
 - Dev(exploitwizard) Full Time Waster, Will ghost & never pay
 - DEVIL_KRISHNA(devil_krishna) Full Time Waster, Will ghost & never pay
