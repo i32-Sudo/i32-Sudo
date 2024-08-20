@@ -24,7 +24,7 @@ Allo! My name is Тагир （or Ezekiel) I was born in Crimea and now live in 
 ### Untrusted Scammers ⚠️
 UnTrusted Scammers that I have dealt and worked with.
 ```
-- ⛔ Kazuto - Scammer asked for more money then we settled on and then selling pasted code I found in less then 5 minutes on github.
+- ⛔ Kazuto - Scammer asked for more money then we settled on (after I paid the amount we agreed to) making me pay $200+ (demanding it) After I already paid for the amount he wanted and then selling pasted code I found in less then 5 minutes on github.
 - ⛔ ИЦҜΞD ЯЦSΓ　　　 🗕 🗗 🗙 - Exit Scamming with his "UD" Rust Internal
 - ⛔ viviandeveloper(owner) -  VivianWare Admin, Skid & Time Waster will ghost & never pay
 - ⛔ unlockcheat.com(owner) - Scammer & Time Waster, As a cheat reseller & owner (NOT A DEVELOPER) You should hold responsibility and not try to Scam & Manipulate your developers. Extremely unprofessional and not worth the time to get scammed and played.
